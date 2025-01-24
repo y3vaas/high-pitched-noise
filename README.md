@@ -1,3 +1,3 @@
 # WARNING
 
-mainly only kids hear it
+don't use this in school
